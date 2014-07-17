@@ -24,11 +24,7 @@ Accommodation should be looked at by everyone on their own, but for people who t
 there are some people in Helsinki who are willing to accommodate / co-working spaces with showers etc, 
 so some 10 people could be accommodated with friends. 
 
-IF YOU NEED HELP FOR ACCOMODATION / WANT TO SLEEP ON SOMEONE'S FLOOR OR COUCH TYPE YOUR EMAIL HERE: 
-
-
-
-
+IF YOU NEED HELP FOR ACCOMODATION / WANT TO SLEEP ON SOMEONE'S FLOOR OR COUCH INDICATE IN REGISTRATION FORM! 
 
 
 Names of people who are committed to coming and who have purchased tickets (either plane or Frozen Rails): 
