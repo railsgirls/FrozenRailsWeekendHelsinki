@@ -27,7 +27,8 @@ body {
 }
 
 emph {
-  font-style: italic;
+  color: #e0330c;
+  font-weight: bold;
 }
 
 #background {
